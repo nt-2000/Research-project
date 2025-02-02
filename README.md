@@ -1,4 +1,4 @@
-# **Socio-Economic Research on IT Professionals in Mumbai**
+# **Work, Learn, Survive: A Study on IT Employees’ Perspectives and the Future of the Industry**
 ### *Understanding Challenges, Job Market Trends, and AI’s Impact*
 
 ## **Overview**
